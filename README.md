@@ -1,4 +1,4 @@
-# BlooketHack
+# Blooket Hack
 The Reliable blooket hack
 
 Below is a website where you will be able to find hacks for blooket, enjoy.
