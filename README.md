@@ -1,5 +1,5 @@
-# Blooket-OmsHack
-The place where you can find hacks for blooket.
+# BlooketHack
+The Reliable blooket hack
 
 Below is a website where you will be able to find hacks for blooket, enjoy.
 
