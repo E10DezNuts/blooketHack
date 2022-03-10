@@ -17,4 +17,9 @@ You can email me here for questions and concerns.
 My Other email is - Notarealemail.fake1@gmail.com
 You can use that for other non important things.
 
+You can also find me on SCRATCH
+
+https://scratch.mit.edu/CodeWord1
+
+
 
