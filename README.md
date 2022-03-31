@@ -1,7 +1,7 @@
 # Blooket Hack
 The Reliable blooket hack
 
-HACKS ARE BACK UP
+HACKS ARE BACK UP (Again)
 
 Below is a website where you will be able to find hacks for blooket, enjoy.
 
